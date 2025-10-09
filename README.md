@@ -30,6 +30,6 @@ Currently, I’m expanding my skills in **programming**, **AI**, and **data-driv
 ---
 
 ## 📫 Contact
-- ✉️ Email: [your.email@example.com](mailto:your.email@example.com)  
-- 🌐 Portfolio: [yourwebsite.com](https://yourwebsite.com) *(optional)*  
-- 💬 GitHub: [github.com/yourusername](https://github.com/yourusername)
+- ✉️ Email: [sunghyun329@gmail.com]
+- 🌐 Portfolio: [yohaku1.tistory.com] 
+- 💬 GitHub: [github.com/SengangLemon]
