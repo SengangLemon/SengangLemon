@@ -2,8 +2,8 @@
 
 **Born:** 1992  
 **Location:** South Korea 🇰🇷  
-**Education:** High School Graduate  
-**Language:** Korean (Native), English (Learning)  
+**Education:** High School Graduate  / Fresh man of Korea National Open University (2026)
+**Language:** Korean (Native), English (Learning)  , Japanese(Interested)
 
 ---
 
